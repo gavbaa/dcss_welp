@@ -47,4 +47,4 @@ STOP FOLLOWING ME I WANT TO GO HOME
 
 ![Alt text](images/Screenshot%202023-01-28%20at%209.39.02%20PM.png)
 
-![Alt text](images/Screenshot%202023-01-28%20at%209.39.46%20PM.png)
+![Alt text](images/Screenshot%202023-01-28%20at%209.39.46%20PM-2.png)
